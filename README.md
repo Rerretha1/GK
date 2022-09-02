@@ -1,2 +1,17 @@
 # GK
 Grafika Komputeer
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
